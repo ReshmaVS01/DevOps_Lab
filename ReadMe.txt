@@ -1,1 +1,1 @@
-Hi! My name is Reshma. I'm currently pursuing BTech CSE(IoT) degree in Shiv Nadar University.
+Hi! My name is Reshma. I'm currently pursuing BTech CSE(IoT) degree in Shiv Nadar University Chennai.
